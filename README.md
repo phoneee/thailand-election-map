@@ -1,0 +1,1 @@
+# thailand-election-map
